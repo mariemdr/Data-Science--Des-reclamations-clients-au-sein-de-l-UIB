@@ -1,1 +1,1 @@
-# stage
+# stage d'été
